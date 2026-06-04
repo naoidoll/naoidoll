@@ -10,7 +10,5 @@
   <p align="center">⠀𝟏𝟗 𝐘.𝐎  <img src="https://64.media.tumblr.com/73b0e7a5ededf4a853ff89b593acf855/e95425e74245493d-d1/s75x75_c1/157100bbdc6911c5277c8a1f45e3f621e7786389.gifv" />   𝟔.𝟏𝟕.𝟎𝟔
   <p align="center">⠀
    
-<img align="center" src="https://files.catbox.moe/2emm5x.gif" height="20" /> <img align="center" src="https://files.catbox.moe/fly5sz.png" height="20"> <img src="https://files.catbox.moe/aceqe9.gif" height="20"/> <img align="center" src="https://files.catbox.moe/fly5sz.png" height="20"> <img align="center" src="https://files.catbox.moe/2jlubu.gif" height="20" />
-
  <p align="center">  
 <img src="https://files.catbox.moe/bchj8l.png" />
